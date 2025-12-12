@@ -59,10 +59,3 @@ Me chamo David Gabriel, tenho 18 anos e resido no Rio Grande do Norte. Estou con
 
 <br>
 <br>
-
-<br>
-
-
-<br>
-<br>
-<br>
