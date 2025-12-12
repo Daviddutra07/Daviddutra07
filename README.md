@@ -1,6 +1,3 @@
-<br>
-<br>
-<br>
 
 🧑🏻‍💻 David Gabriel
 
